@@ -1,2 +1,2 @@
-## Skye Emmy Mods
-Two girlfriends who decided to write mods together
+## hEmSkT projekt
+Two partners who write horrible projects
